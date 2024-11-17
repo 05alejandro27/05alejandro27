@@ -5,4 +5,4 @@
 ## 📬 Conéctate conmigo
 
 📧 **Email**: [alejandrodev27@gmail.com](mailto:alejandrodev27@gmail.com)  
-🌐 **LinkedIn**: [Tu perfil]([https://www.linkedin.com](https://www.linkedin.com/in/alejandro-pe%C3%B1a-fern%C3%A1ndez-6a1025332/))  
+🌐 **LinkedIn**: [Alejandro](https://www.linkedin.com/in/alejandro-pe%C3%B1a-fern%C3%A1ndez-6a1025332/)
